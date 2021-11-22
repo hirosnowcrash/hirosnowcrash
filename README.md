@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hirosnowcrash
-- 👀 I’m interested in the metaverse
+- 👀 I’m creating on the metaverse  ⚔️
 - 🌱 I’m currently learning web3, blockchain, VR
 - 💞️ I’m looking to collaborate on the metaverse
 - 📫 How to reach me via discord
